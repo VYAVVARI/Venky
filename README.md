@@ -5,4 +5,4 @@ Senior Java Developer with 10+ years of experience in:
 
 Currently preparing for Senior Java Developer roles and building production-grade projects.
 
-Reach me: LinkedIn: linkedin.com/in/venkatarao-yavvari-89128b25 Email: yourmail@gmail.com
+Reach me: LinkedIn: linkedin.com/in/venkatarao-yavvari-89128b25 Email: urs.venky.mca@gmail.com
